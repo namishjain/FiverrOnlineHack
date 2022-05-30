@@ -1,4 +1,4 @@
-# Fiverr Online Script 
+# Fiverr Online Hack
 
 Hello, This is a Python Hack by which you can remain online on 
 Fiverr for 24 hours without getting banned !!
